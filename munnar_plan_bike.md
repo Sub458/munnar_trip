@@ -43,7 +43,7 @@ Here’s how you can break it down for comfort and fuel:
 Want me to help you plan fuel stops, food joints, or even scenic detours like waterfalls or tea estates en route?
 
 ### Returning
-Absolutely, Subham—here’s a clean, efficient route for your **bike ride from Alleppey to Bengaluru** 🏍️:
+here’s a clean, efficient route for your **bike ride from Alleppey to Bengaluru** 🏍️:
 
 ---
 
